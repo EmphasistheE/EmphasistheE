@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @EmphasistheE, im here for some reason, i just felt like making an account.
